@@ -1,2 +1,2 @@
-Nothing sofar to see here. 
+Nothing so far to see here. 
 Maybe come a little bit later...
