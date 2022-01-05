@@ -1,2 +1,2 @@
-#  Hey, I am Daniel :wave:
+#  Hi! I am Daniel :wave:
 
